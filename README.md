@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @itzmekriz
+- 👀 I’m interested in graphic designing programs.
+- 🌱 I’m currently on my path to achieve my goal which is to be a professional.
